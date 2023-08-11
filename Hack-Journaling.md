@@ -14,6 +14,14 @@
     * when you just think you're usually following parallel paths, seeing more problems and solutions and easily feel overwhelmed
   * you can go back and read what you thought on things
 
+* Example Questions
+  * am I overreacting?
+  * Is it true? What are the facts?
+  * What happened?
+  * does behaviour/thought do for me what I want?
+  * what does that feeling do for me, what's it protecting me from?
+  * will i loose something if I do/don't do it?
+
 * Example, the ~ voice feels warm and friendly, while the one without is the active ego-part:
   * I'm not trying hard enough to get help, I don't want to work tomorrow
   * ~ why?
