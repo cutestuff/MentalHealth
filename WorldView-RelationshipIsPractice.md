@@ -7,7 +7,7 @@ We're all on a journey through time towards the end of life. On the way there's 
 * Communicating Expectations and Needs can be very embarrassing, but it's worth it.
 
 * Radicalization.
-  * The internet has radicalized a lot of us. Gaslighting us with conspiracy theories, anti this, pro that, racism, anti-semitism, agendas left and right. The powers that be don't want you be talking to "the other side", throw a wrench into their plans.
+  * The internet has radicalized a lot of us. Gaslighting us with conspiracy theories, anti this, pro that, racism, anti-semitism, agendas left and right, hate towards a certain kind of men or women. The powers that be don't want you be talking to "the other side", throw a wrench into their plans.
 Keep talking to ppl, so you can learn to live with your differences. Cancel culture is bad for everybody. We're social creatures and divided we'll fall. When we're younger, we see everything we believe as truth and we throw it around as if there's something to win. Don't worry, loosing an argument won't break your identity, keep talking! Eventually you might find someone who's ready to tolerate you.
 
 * Resentment and Isolation
