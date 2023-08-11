@@ -4,3 +4,6 @@
 
 ## Inner Dialogue and Believes
 * Byron Katie - the work https://thework.com/ - Worksheet Download is free, lots of talks on youtube, she also sells a book, but that's not in the center of the dialogue.
+
+## Teaching
+* Inuit way of teaching https://www.npr.org/sections/goatsandsoda/2019/03/13/685533353/a-playful-way-to-teach-kids-to-control-their-anger
