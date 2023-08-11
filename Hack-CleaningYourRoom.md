@@ -6,4 +6,5 @@ there is no such thing as laziness, just priorities, either you don't really wan
 * High five yourself in the mirror
 * Pick up 4 things - (5 won't work for me) - and put them where they belong - hopefully the same category: grab 4 pieces of dishes, put in the sink -repeat until no dishes left
 * Break and play a videogame for 10 hrs
-* Go hunting for the laundry xD
+* Go hunting for the laundry
+* If you have the money, pay someone to help you clean
